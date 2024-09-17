@@ -25,4 +25,8 @@ https://www.dropbox.com/scl/fi/8heioxewevf3i0h9fvg8l/Toyota_Hilux_2015.scs?rlkey
 
 تشارجر هيلكات 2021 
 
-https://www.dropbox.com/scl/fi/isd4xpplh81sefoz50rmx/Dodge-Charger-SRT-Hellcat-Redeye-Widebody-2021-V1.2-1.51.zip?rlkey=rtl0w81unsljws7u7ss6rw64t&dl=0
+https://www.dropbox.com/scl/fi/isd4xpplh81sefoz50rmx/Dodge-Charger-SRT-Hellcat-Redeye-Widebody-2021-V1.2-1.51.zip?rlkey=rtl0w81unsljws7u7ss6rw64t&dl=1
+
+فورشنر 
+
+https://www.dropbox.com/scl/fi/l5d8njf2y76kq91nlobxg/Toyota-Fortuner-AN160-V1.4-1.51.zip?rlkey=evp1lln50r1nnvv44a19234a5&dl=1
