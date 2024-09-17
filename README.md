@@ -30,3 +30,14 @@ https://www.dropbox.com/scl/fi/isd4xpplh81sefoz50rmx/Dodge-Charger-SRT-Hellcat-R
 فورشنر 
 
 https://www.dropbox.com/scl/fi/l5d8njf2y76kq91nlobxg/Toyota-Fortuner-AN160-V1.4-1.51.zip?rlkey=evp1lln50r1nnvv44a19234a5&dl=1
+
+شاص 
+
+https://www.dropbox.com/scl/fi/jcuyfno14aeqrf5tku05a/Gayster_Toyota_Land_Cruiser_j70_V1_modland_modland.zip?rlkey=jgj7wyzq0478ywh8xdn0v7ax5&dl=1
+
+ربع 
+
+https://www.dropbox.com/scl/fi/fkvpjrbflwxn9f4k5jtkd/warning_cr_modland.zip?rlkey=m8hpn119xxo4r2txwfqv7hbbi&dl=1
+
+شاص قدييم 
+
