@@ -1,4 +1,5 @@
 # jacg
+محاكي الشاحنات 👇🏻 
 
 فورد 12
 
@@ -31,6 +32,8 @@ https://www.dropbox.com/scl/fi/isd4xpplh81sefoz50rmx/Dodge-Charger-SRT-Hellcat-R
 
 https://www.dropbox.com/scl/fi/l5d8njf2y76kq91nlobxg/Toyota-Fortuner-AN160-V1.4-1.51.zip?rlkey=evp1lln50r1nnvv44a19234a5&dl=1
 
+محاكي الحوادث 👇🏻
+
 شاص 
 
 https://www.dropbox.com/scl/fi/jcuyfno14aeqrf5tku05a/Gayster_Toyota_Land_Cruiser_j70_V1_modland_modland.zip?rlkey=jgj7wyzq0478ywh8xdn0v7ax5&dl=1
@@ -39,5 +42,11 @@ https://www.dropbox.com/scl/fi/jcuyfno14aeqrf5tku05a/Gayster_Toyota_Land_Cruiser
 
 https://www.dropbox.com/scl/fi/fkvpjrbflwxn9f4k5jtkd/warning_cr_modland.zip?rlkey=m8hpn119xxo4r2txwfqv7hbbi&dl=1
 
-شاص قدييم 
+هلي 
+
+https://www.dropbox.com/scl/fi/k1rg8828tmlc0fzy2bwol/taskhulix_modland.zip?rlkey=mufysew24itahk8kwbfxezkl4&dl=1
+
+لاند تفجير 
+
+https://www.dropbox.com/scl/fi/y5ir75sbg5vkl8kvjx6ce/Land100.zip?rlkey=degsd8o699gcmnc0tc0ys96pz&dl=1
 
