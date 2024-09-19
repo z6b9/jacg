@@ -1,4 +1,6 @@
 # jacg
+
+https://www.dropbox.com/scl/fi/6y2gii36wjq73ymiw8qwq/ets2147openbetamoneyxpmod.zip?rlkey=zoejg7qwfs3afuxio1dwboh8d&dl=1
 محاكي الشاحنات 👇🏻 
 
 فورد 12
