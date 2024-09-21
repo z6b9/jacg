@@ -64,3 +64,10 @@ https://www.dropbox.com/scl/fi/k1rg8828tmlc0fzy2bwol/taskhulix_modland.zip?rlkey
 
 https://www.dropbox.com/scl/fi/y5ir75sbg5vkl8kvjx6ce/Land100.zip?rlkey=degsd8o699gcmnc0tc0ys96pz&dl=1
 
+هلي 97 
+
+https://www.dropbox.com/scl/fi/qbn33umni4v5dq07psosu/Toyota_Hilux_1997_modland.zip?rlkey=5v8imi8in3d13ygjw1r6bfxgl&dl=1
+
+هلي 2005 
+
+https://www.dropbox.com/scl/fi/a05q8bkvl0nm058zfsaix/qifHilux2005.zip?rlkey=kcdpj2kptabpromlkf5ylxlde&dl=1
