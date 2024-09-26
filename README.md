@@ -71,3 +71,7 @@ https://www.dropbox.com/scl/fi/qbn33umni4v5dq07psosu/Toyota_Hilux_1997_modland.z
 هلي 2005 
 
 https://www.dropbox.com/scl/fi/a05q8bkvl0nm058zfsaix/qifHilux2005.zip?rlkey=kcdpj2kptabpromlkf5ylxlde&dl=1
+
+هلي تطعيس
+
+https://www.dropbox.com/scl/fi/k1rg8828tmlc0fzy2bwol/taskhulix_modland.zip?rlkey=mufysew24itahk8kwbfxezkl4&dl=1
