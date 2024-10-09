@@ -176,3 +176,10 @@ https://www.mediafire.com/file/ti2nqk8i20xxsmw/Lexus_LX570.zip/fileI
 
 هوندا أكورد 2007 - 2017
 https://modsfire.com/ccUk0y66522200m
+
+هايلوكس 2012 - 2015 
+https://www.mediafire.com/file/ni9c4ai6smjvh6q/Abo3Zmh_hilux_v1.zip/file
+
+هايلوكس Double 
+https://modsfire.com/K9g5jwvD02605dJ
+
