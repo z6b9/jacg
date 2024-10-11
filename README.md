@@ -1,7 +1,10 @@
 t# jacg
 
 محاكي الحوادث 👇🏻
-
+بكج ( الرابط الاول ) 
+https://drive.google.com/drive/folders/1yAZi_Kcktanqf9fdZJQUsAfHpxW9ismk?usp=sharing
+الرابط الثاني 
+https://drive.google.com/drive/folders/1sShvlKF5buzgRrkW5mRPbUvMc3JjwirS?usp=sharing
 سوناتا 2016
 
 https://www.dropbox.com/scl/fi/ifqxlg3crbs59i9ob5chh/hyundai-sonata-2016_modland.zip?rlkey=ttpb7he16zh66yeobm1o3llbl&dl=1
