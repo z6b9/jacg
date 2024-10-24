@@ -144,3 +144,5 @@ https://www.dropbox.com/scl/fi/3yflg5pr8wxm9dsi9gtap/.zip?rlkey=rxviv6y7kd4epsuo
 ربع عدم القديم https://modsfire.com/mdSQtk1u5lf6yu5
 
 ماب الدائري https://www.mediafire.com/file/p6il2514ir5wt13/drive_dayere.zip/file
+
+ربع معطوب https://www.dropbox.com/scl/fi/l5wqm00tudr0myd6x3xs8/Gayster_Toyota_Land_Cruiser_j70_V1_modland_modland.zip?rlkey=76ifn4ejnm1j6wff27qhtpx61&dl=1
