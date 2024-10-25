@@ -154,3 +154,5 @@ https://www.dropbox.com/scl/fi/3yflg5pr8wxm9dsi9gtap/.zip?rlkey=rxviv6y7kd4epsuo
 ددسن https://www.dropbox.com/scl/fi/4de3enndgw36s3ot8etep/.zip?rlkey=9u42bu835das7gxth7fi2tvuv&dl=1
 
 لاند ٢٤ https://www.dropbox.com/scl/fi/s40ln0l9j8a827tni8lti/land24.zip?rlkey=2abcyxtpwe78mbean2h5xf9cb&dl=0
+
+مخصر سيرا https://sharemods.com/racpj8bxcrqu/tasksierraV2.zip.html
