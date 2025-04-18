@@ -7,7 +7,7 @@ https://www.mediafire.com/file/ydyr67ojix3bfb2/Nissan_Datsun_98-16.zip/file
 
 ربع مونستر 
 
-https://modsfire.com/u1vXS9HDrY536jR
+https://www.dropbox.com/scl/fi/1xbbdebghz7l0v2fnvwg2/monster_j70.zip?rlkey=2z2xrmdcmravk5gl8vgozap3j&st=9otbosiw&dl=0
 
  بكج ( الرابط الاول ) https://drive.google.com/drive/folders/1yAZi_Kcktanqf9fdZJQUsAfHpxW9ismk?usp=sharing 
 
