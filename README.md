@@ -7,7 +7,7 @@ https://www.dropbox.com/scl/fi/twhgoo9fwhurcy9hz4bvm/.zip?rlkey=0dv4aw725sirasyu
 
 مود سواب انجن 
 
-
+https://www.beamng.com/resources/vehicle-global-strength-weight-size-and-other-values-edit-works-for-mods.14868/
 
 ددسن 
 
